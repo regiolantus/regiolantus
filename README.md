@@ -1,1 +1,1 @@
-あ
+newbie coder
